@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @Nathanec123
+- Call me Skater100
 - 👀 I’m interested in Gaming, Streaming  
 - 🌱 I’m currently learning Games
 - 💞️ I’m looking to collaborate on Zoom or Restream.io
